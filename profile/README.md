@@ -19,8 +19,6 @@ At **Path2Support**, we are more than just an outsourcing company—we are your 
 📌 **Our Vision:** To be a global leader in outsourcing, recognized for excellence, innovation, and customer satisfaction.  
 📌 **Our Mission:** To empower businesses with strategic support solutions that drive efficiency and success.  
 
----
-
 ## 🔥 **Ready to Elevate Your Business?**  
 📩 **Book Our Services Now** and take your operations to the next level!  
 🌍 [Discover More](https://www.path2support.com/)  
